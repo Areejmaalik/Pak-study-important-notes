@@ -11,4 +11,5 @@
 * Conversion to lslam . Equility and social justice
 * IMPACT OF MUSLIM RULES:
 * Self-pride ,attachment and their islamic religion-culture identity,that they can not be steam-rolled by other communities.
-* Challenge of western expansion in india did not have save implications for both communities  
+* Challenge of western expansion in india did not have save implications for both communities. The muslim felt the burnt of the rise of the birtish more then others.
+*  
