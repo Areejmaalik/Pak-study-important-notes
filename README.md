@@ -7,5 +7,8 @@
 * It legitimizes certain actions and deligitimizes others.
 * FOUR FACTORS THAT INFLUENCED THE DEVELOPMENT OF MUSLIM CONSCIOUSNESS AND IDENTITY:
 * Islam could not be absorbed in hinduism.Two religious and cultural streams.Efforts to create a combination of two did not fully succeed.
-* deen-e-llahi,bakhti movement etc. Reaction amongst the muslim to preserve the pure character and save it from external onsluaght.Role of Sheikh Ahmad Sirbindi and others is note worthly.
-* Conversion to lslam . Equility and social justice       
+* Deen-e-llahi,bakhti movement etc. Reaction amongst the muslim to preserve the pure character and save it from external onsluaght.Role of Sheikh Ahmad Sirbindi and others is note worthly.
+* Conversion to lslam . Equility and social justice
+* IMPACT OF MUSLIM RULES:
+* Self-pride ,attachment and their islamic religion-culture identity,that they can not be steam-rolled by other communities.
+* Challenge of western expansion in india did not have save implications for both communities  
