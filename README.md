@@ -1,4 +1,4 @@
-# Pak-study-important-notes
+# Pak-study-notes
 * Lecture no : 01
 * IDEOLOGY EMPHASIZES:
 * A set of principles,ideals and blue from the future.
@@ -12,4 +12,4 @@
 * IMPACT OF MUSLIM RULES:
 * Self-pride ,attachment and their islamic religion-culture identity,that they can not be steam-rolled by other communities.
 * Challenge of western expansion in india did not have save implications for both communities. The muslim felt the burnt of the rise of the birtish more then others.
-*  
+  
